@@ -2,7 +2,7 @@
 
 1 -
 
-2 -Maykhel Valero
+2 -
 
 3 -
 
